@@ -17,7 +17,7 @@
 ✨ **"A tecnologia é a ponte entre a imaginação e a realidade."**  
 Você pode me encontrar em outras plataformas:
 
-- [LinkedIn](in/monica-sena-12baa977) 
+- [LinkedIn](https://linkedin.com/in/monica-sena-12baa977/) 
 
 - [GitHub](https://github.com/Monica-1985) 
 
